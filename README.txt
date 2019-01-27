@@ -1,0 +1,1 @@
+We are all learning here! Don't pick a weight that is too heavy. Remember to use correct form and it will all be allright.
